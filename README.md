@@ -1,0 +1,2 @@
+# Resolusi-Wahyu
+Membuat resolusi
